@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-![alt text](https://www.reddit.com/r/reactiongifs/comments/3a8akf/my_cats_reaction_when_i_leave_home/)
+![alt text](https://i.imgur.com/0Y1xISa.gifv)
 
 Here are some ideas to get you started:
 
