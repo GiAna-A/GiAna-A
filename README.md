@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-![alt text](https://i.imgur.com/0Y1xISa.gifv)
+![alt text](http://gph.is/1LjlEFE)
 
 Here are some ideas to get you started:
 
