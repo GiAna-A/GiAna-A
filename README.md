@@ -2,7 +2,7 @@
 
 
 
-- 🌱 Started to learn HTML, CSS and Javascript, working right now in a cool startup.
+- 🌱 Started to learn HTML, CSS and Javascrip and am currently learning how a low-code platform works as part of my master's thesis. 
 
 
 
